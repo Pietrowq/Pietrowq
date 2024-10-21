@@ -1,6 +1,8 @@
 ### Boas vindas ao meu perfil
-Sou muito preguiçoso, única coisa que eu faço é comer e dormi.
+Sou muito preguiçoso, única coisa que eu faço é comer ir pra escola e dormi.
 
-Futuramente pretendo estudar a área da programação
+Futuramente pretendo estudar a área da programação.
 
-![](https://tenor.com/pt-BR/view/bart-el-papuselo-bart-simpson-bart-bart-sinson-gif-26627444)
+![](https://media.tenor.com/lT0M9AKFiwAAAAAM/bart-el-papuselo-bart-simpson.gif)
+
+![](https://media.tenor.com/HApzlOkcrYIAAAAM/fr-ong.gif)
